@@ -1,4 +1,4 @@
-# 
+# Top YNAB plugins para Mac OS | Profissional YNAB plugins para PC Windows. Com fluxos de aprovação e marcas d'água — otimizado para máximo desempenho em cada plataforma.
 
 
 
